@@ -1,4 +1,4 @@
-- 👋 Hi, I’m prasadrandombage
+- 👋 Hello ..!
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=Hey%2C+I'+am+Chathura+Randombage)](https://git.io/typing-svg)
